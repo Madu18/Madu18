@@ -12,4 +12,7 @@ Meu nome é Maria Eduarda
 
 @MariaEduarda
 
-https://media1.tenor.com/m/J_1rvj9mL4kAAAAd/tiktok-dog-awkward-dog.gif
+
+![](https://media1.tenor.com/m/GaM2IijvoOUAAAAd/shy-dog-dog.gif)
+
+
